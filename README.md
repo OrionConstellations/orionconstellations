@@ -1,3 +1,5 @@
+╭━━━━━∙⋆⋅⋆∙━━━━━╮
+
 **⭐ Orion Constellations !!** 
 
 ✩ feel free to c + h  on pt
@@ -5,6 +7,12 @@
   '' dnc ponies on pt pls!! :) 
 
 ✩  ^ usually online between 4:00-11:00 pm CEST 
+
+✩ [system rentry](https://rentry.co/idiotsinonehead)
+
+
+╰━━━━━∙⋆⋅⋆∙━━━━━╯
+
      
 
 
