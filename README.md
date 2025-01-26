@@ -2,7 +2,7 @@
 
 ✩ feel free to c + h  on pt
   
-  '' dnc my ponies on pt pls!! :) 
+  '' dnc ponies on pt pls!! :) 
 
 ✩  ^ usually online between 4:00-11:00 pm CEST 
      
