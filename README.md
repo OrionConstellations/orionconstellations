@@ -21,9 +21,6 @@
 
 ✩  ^ usually online between 4:00-11:00 pm CEST 
 
-✩ [system rentry](https://rentry.co/idiotsinonehead)
-
-
 ╰━━━━━∙⋆⋅⋆∙━━━━━╯
 
 
