@@ -16,7 +16,7 @@
 ╭━━━━━∙⋆⋅⋆∙━━━━━╮
 
 
-✩ when i'm online it's usually between 4:00-11:00 pm CEST 
+✩ when i'm online it's usually between 4:00-11:00 pm CEST , w2i if afk
 
 ✩ pt locations: usually by the docks, ut area or in the jjk area
 
