@@ -20,6 +20,8 @@
 
 ✩ pt locations: usually by the docks, ut area or in the jjk area
 
+✩ friend requests / dms are open on every platform !
+
 
 ╰━━━━━∙⋆⋅⋆∙━━━━━╯
 
