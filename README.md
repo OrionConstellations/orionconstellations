@@ -22,6 +22,8 @@
 
 ✩ friend requests / dms are open on every platform !
 
+!! if you want to join or help with the pt regiment i'm working on, shoot me a dm on discord
+
 
 ╰━━━━━∙⋆⋅⋆∙━━━━━╯
 
